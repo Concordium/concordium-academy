@@ -1,1 +1,0 @@
-# Concordium Academy Pages
